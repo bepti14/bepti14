@@ -1,1 +1,1 @@
-Hello I live in Skwierzyna, Columbia
+Skwierzyna Fan Club manager
